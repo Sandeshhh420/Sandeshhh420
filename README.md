@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Sandeshhh420
 - 👀 I’m interested in anime, singing, learning new songs on guitar.
 - 🌱 I’m currently learning to live.
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on something that'll be a challenge for a beginner like me so....... anything lmao
+- 📫 How to reach me 
 
 <!---
 Sandeshhh420/Sandeshhh420 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
